@@ -1,1 +1,1 @@
-# METRO-Digital---Hackathon
+# METRO-Digital Hackathon
